@@ -1,2 +1,3 @@
 # imstill-learning-
-practice projects
+bitch im still learning!! 
+practice projects 
